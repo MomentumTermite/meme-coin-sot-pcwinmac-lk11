@@ -1,4 +1,4 @@
-# 
+# Secure meme coin sniper bot extensions for Mac OS | Lightweight meme coin sniper bot extensions for PC Windows. Featuring historical data analysis and simulation testing — optimized for maximum performance on every platform.
 
 
 
